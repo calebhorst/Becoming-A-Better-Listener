@@ -1,0 +1,19 @@
+## Their Tone
+```
+When you're in a conversation with someone or listening to them, listen specifically to what their tone is saying. This can help you understand where they are at emotionally. Are they stressed? Are they excited? Are they bored? Sometimes they're tone might even help you understand whether they believe what they're saying is true or not. Do they have a sense of urgency? If you're in a meeting with the customer and they have a certain tone, you'll know that there's a sense of urgency to get certain projects done. The tone will help you understand whether you need to resolve something immediately or if it can wait until it's the right time. Their tone might even say that they trust you. Imagine if someone's talking to you in a quieter voice or a whisper. That probably puts some emphasis on the message that they're giving to you. Tones can see say a lot, for example they can tell you that the person is stressed. The person is excited, or maybe the person is just simply board. The way they say something might tell you if they're scared about something, or like I mentioned earlier, if they actually believe in what they're saying. You've probably heard people say things in a way where it's obvious that they don't believe what they're saying. If they speak quick and loud, then you know there's a sense of urgency. Their tone could say, I trust you and I want to tell you more or it could say I don't really trust you. Sometimes the way they say things might say, I really don't want to say this, but because of my position, I'm being forced to say this. Over the next few days, listen to the tone of the person who is communicating and try and see if their tone matches their words and if those match the body language.
+```
+
+## Notes
+Listening to someone's tone of voice is an essential aspect of active listening. Tone can convey a wealth of information about a person's emotional state, their level of urgency, and their sincerity. Here are some key elements to pay attention to when listening to someone's tone:
+
+1. **Emotional State:** The tone of voice can provide insights into a person's emotional state. Are they happy, sad, excited, or stressed? By listening to the inflections and cadence of their voice, you can gain a better understanding of their feelings.
+
+2. **Urgency:** The tone can also indicate the level of urgency associated with a message. A quick and loud tone may signify a pressing matter that requires immediate attention, while a calm and measured tone may indicate that the issue can be addressed at a later time.
+
+3. **Trust:** The way someone speaks can convey their level of trust in the conversation. A trusting tone suggests openness and willingness to share information, while a guarded or defensive tone may indicate skepticism or caution.
+
+4. **Sincerity:** People often reveal the sincerity of their words through their tone. You can often detect when someone truly believes in what they are saying, and conversely, when they are being insincere or disingenuous. Inconsistent tone and content may suggest hidden motives.
+
+5. **Reluctance:** A person's tone can reveal reluctance or discomfort in discussing a particular topic. They may convey that they would rather not share the information, but external factors, such as their position or duty, are compelling them to speak.
+
+To become a more effective listener, it's important to pay attention to the alignment of tone with other cues, such as body language and the content of the message. Discrepancies between these elements can provide valuable insights into the speaker's true thoughts and feelings. Active listening involves not only hearing the words but also interpreting the nuances of tone and nonverbal cues to gain a deeper understanding of the message being conveyed.
