@@ -1,0 +1,27 @@
+## State Your Expectations
+```
+Another tactic to help you help others understand your message is to state your expectations upfront. Perhaps tell them what you're going to tell them. When I first started speaking professionally, my publisher said that a good speaker will tell the audience what he's going to tell them and then tell them the message and then tell them what he told them. Now I don't necessarily agree. Many times that's going to be overkill. But there's an idea that we can tell somebody what we're going to tell or teach them before we do it and get them in the proper mindset. Many years ago, new neighbors moved into my apartment complex. They came and met with my wife and I and they said, Hey, just so you know, if you want to tell us something, you have to make it very clear and just come out and say it. We're not very good at reading in between the lines, so if there's anything you need us to know, please just tell us. I thought that was an awesome way to start out the relationship. As I mentioned in the last video, don't go for the double meanings. Sometimes our audience needs to hear what our message is very clearly. I would suggest that you do this as often as you need to. The idea that your pre‑teaching infers that you're going to tell it before you tell it. But maybe you need a pause during your presentation or the conversation and say, I just want to make sure that we're on the same page. What we're talking about is this. If the conversation or presentation gets out of hand, what you might need to do is stop the conversation or presentation and regroup at a better time. You have to be on your toes to realize when it's time to stop. Has the conversation gotten off on a tangent, and you can't pull back to the main topic. If that's the situation, then gracefully end that conversation and move on to whatever the tangent was and move on to where the tangent leads you. If that's the best course for the relationship. A number of years ago I learned from a therapist the difference between being assertive and being too aggressive. He used an example of a bunny rabbit that could easily get pushed around and is not very assertive versus a semi truck, which is totally aggressive while somewhere in between bunny, rabbit and semi truck, there's this idea that you're going to be assertive. Let me give you an example of how you do that. Let's say that somebody wants you to say or do something that you're uncomfortable saying or doing. You could be like the bunny rabbit and just be a pushover and let the other person have their way. Or you could be like a semi truck and aggressively attack them. The idea of being assertive is that you politely, but firmly state your position. For example, I don't really feel comfortable doing that. I would rather do x,y,z, and then the other person says, "Yeah, but we really should do this thing, in which case, you go back to the exact language that you said before, I don't really feel comfortable doing that. I think, the therapist said that to practice being assertive. You do that repeatedly until they finally get the message. Don't go back to bunny rabbit mode. Don't go to aggressive semi truck mode just assertively state your position. Finally, I found that when you respect your audience, you don't talk down to them, but you talk with them. You can connect at a different level, and they'll respect you and your message better than if you were to talk down to them.
+```
+
+## Notes
+Clear communication is vital for ensuring that others understand your message effectively. Here are some tactics to help you improve your communication and enhance understanding:
+
+1. **State Expectations Upfront:**
+   - Tell your audience what you're going to tell them before you dive into your message. This helps set the stage and prepares your audience to receive and understand the information. While you don't need to follow a rigid "tell them, tell them, tell them" structure, providing an overview or outline can be beneficial.
+
+2. **Avoid Double Meanings:**
+   - Be clear and direct in your communication. Avoid double meanings, sarcasm, or ambiguous language. Sometimes your message needs to be explicit and straightforward, so your audience can grasp it easily.
+
+3. **Pause and Recap:**
+   - During a conversation or presentation, pause at key moments to ensure everyone is on the same page. Recap what you've discussed to reinforce understanding and keep the conversation on track. This approach helps prevent tangents and misunderstandings.
+
+4. **Know When to Regroup:**
+   - If a conversation veers off track or becomes unproductive, recognize when it's time to stop and regroup. Assess whether the current discussion is leading to productive outcomes or if it's better to address the tangent separately.
+
+5. **Be Assertive, Not Aggressive:**
+   - Practice assertiveness in your communication. Politely and firmly state your position when you're uncomfortable with a request or idea. Assertiveness helps you express your boundaries and opinions without being overly passive or aggressive.
+
+6. **Respect Your Audience:**
+   - Treat your audience with respect and avoid talking down to them. Engage in a dialogue rather than delivering a monologue. When people feel valued and respected, they are more likely to listen and understand your message.
+
+By employing these tactics, you can create an environment where your audience is more likely to comprehend and engage with your message effectively, leading to productive and meaningful communication.

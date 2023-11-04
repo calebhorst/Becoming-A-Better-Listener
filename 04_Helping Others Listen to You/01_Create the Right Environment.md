@@ -1,0 +1,24 @@
+## Create the Right Environment
+```
+Throughout this course, I've been talking about removing distractions. When you're helping other people listen to you, what can you do to create the right environment without distractions? The big question is, how much can you actually influence? Because there will be scenarios where you can't remove all of the distractions? Did you know that professional speakers like to go into their room before they speak and move the chairs around? There are certain seating arrangements that are great for professional speakers, and there are other seating arrangements that are just horrible. Speakers know that if they want to have a great impact on their audience, they need to move the chairs around. Sales professionals do the same thing. They'll figure out what the environment looks like and what changes need to happen in the environment to have the most impact on the person that they're talking with. You can make changes like this also. For example, I give you permission to turn the TV off, whether it's in a lobby or a restaurant. It doesn't hurt to say, Hey, I'm having a really important conversation, can we turn the TV off for a little bit? It doesn't hurt to ask if you can have the TV turned off, this might be in the person's office or in a lobby. Even if you're in a restaurant where you're the only people around, having the TV off, removes significant visual and audio distractions. When you look at the environment, you might realize that you can't do anything to remove the distractions, so you simply need to move the meeting. For example, if you're at a conference and a session just ended, you're trying to have a conversation with somebody. But there's too many people around. They're moving, they're talking. It's very distracting. What you might need to do is say, Hey, let's go meet in the lobby or the hallway. Get away from all of those distractions. It's okay to reposition yourself. When you're evaluating the environment, you're specifically looking for noise distractions, other people that might be distractions, backgrounds like if you're in Las Vegas and all the visual stuff that's happening in the street, all of those things are distractions that you need to understand and think about how they will impact your conversation. If you absolutely can't influence the environment and remove these distractions, I encourage you to use eye contact as a tactic to keep that person engaged. If you maintain strong eye contact, it's more likely that they're going to mirror you and look at you. This can help them stay engaged in the conversation.
+```
+
+## Notes
+Creating the right environment without distractions is essential for effective communication. While you can't always control every aspect of your surroundings, there are strategies you can use to influence and manage the environment to improve active listening and overall communication. Here are some tactics to help you create a distraction-free environment:
+
+1. **Request Adjustments:**
+   - If you're in a space where distractions like a TV or background noise can be controlled, don't hesitate to politely ask for adjustments. For example, request to turn off the TV in a lobby or restaurant while you have an important conversation. Most people are understanding and accommodating when you explain your need for a focused environment.
+
+2. **Choose the Right Location:**
+   - When you assess the environment and find that distractions can't be easily removed, consider relocating to a quieter or more private location. If you're at a conference or in a crowded area, suggest moving to a quieter hallway or lobby for your discussion.
+
+3. **Minimize Visual Distractions:**
+   - Visual distractions, like busy streets or screens in the background, can divert attention. Whenever possible, position yourself and your conversation partner so that your view minimizes these distractions. If it's a window with a distracting view, draw the curtains or blinds.
+
+4. **Use Strong Eye Contact:**
+   - When you can't completely eliminate distractions, maintain strong eye contact with the person you're communicating with. Encourage them to do the same. This creates a more focused connection and helps reduce the impact of external distractions on the conversation.
+
+5. **Plan Ahead:**
+   - Before the meeting or conversation, think about potential distractions in the chosen location. Be prepared to address them or suggest alternative arrangements.
+
+Remember that effective communication and active listening require an environment that fosters engagement and minimizes interruptions. While you can't control everything, your ability to assess, adapt, and communicate your needs to reduce distractions can significantly enhance the quality of your interactions.
